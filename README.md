@@ -1,4 +1,4 @@
-\# 🚀 FreeRTOS Learning Journey - Path to ₹28 LPA
+\# 🚀 FreeRTOS Learning Journey 
 
 
 
