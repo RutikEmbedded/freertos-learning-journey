@@ -30,5 +30,5 @@
 
 
 
-\*\*Follow my journey: 180 days to ₹28 LPA\*\* 🚀
+\*\*Follow my journey
 
